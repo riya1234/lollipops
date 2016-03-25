@@ -1,4 +1,4 @@
-# lollipops
+# Lollipops
 
 Taking a step closer to lollipop land! 
 The world where people have money that grows on trees, life is fair, and sweetness in the air. 
