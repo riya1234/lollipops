@@ -1,1 +1,3 @@
 # lollipops
+
+Taking a step closer to lollipop land! The world where people have money grows on trees, life is fair, and sweetness in the air. Bassically a dream land for kids...
